@@ -23,5 +23,5 @@ I'm **Your Name**
 ---
 
 ## 📫 Connect With Me
-- GitHub: [@yourusername](https://github.com/yourusername)  
-- Email: your.email@example.com  
+- GitHub: [@Heart lahoylahoy](https://github.com/yourusern)  
+- Email: Heart.lahoylahoy.@g.msuiit.edu.ph
